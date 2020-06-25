@@ -1,2 +1,1 @@
-# LEADERSHIP-ROLE-IN-IMPROVING-RESPONSIBILITY-OF-EMPLOYEE-S-WORK-IN-SCOPE-OF-GENERAL-BUREAU-OF-GOVERNM
-Akmal Umar Hasbi Umi Farida Yusriadi Yusriadi
+By: Akmal Umar Hasbi Umi Farida Yusriadi Yusriadi
