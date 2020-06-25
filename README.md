@@ -1,1 +1,1 @@
-By: Akmal Umar Hasbi Umi Farida Yusriadi Yusriadi
+By: Akmal Umar,Hasbi, Umi Farida Yusriadi, Yusriadi
